@@ -174,5 +174,5 @@
 <p dir="auto"><strong>AI Video News Maker Bonus</strong></p>
 <p dir="auto">REMEMBER! If you buy this product through my link, you can also get these huge bonuses (Please remember that these bonuses are not for the TRIAL or FREE versions)</p>
 <p dir="auto">You can have an opportunity to receive extra bonuses if you finish 2 steps below:</p>
-<p dir="auto">♦ Step 1: Order the product by <a href="https://warriorplus.com/o2/a/mkzjl8q/0" rel="nofollow">Clicking here</a></p>
+<p dir="auto">♦ Step 1: Order the product by <strong><a href="https://7review-oto.us/AI-Video-News-Maker-Coupon" target="_blank" rel="nofollow noopener noreferrer"><span style="background-color: #ffff00;">AINEWS2</span></a></strong></p>
 <p dir="auto">♦ Step 2: After your purchase goes through, email your receipt to me at <a href="mailto:inbeereviewbonus@gmail.com">inbeereviewbonus@gmail.com</a> so I can confirm your purchase and email you information about how to access to your bonus material.</p>
